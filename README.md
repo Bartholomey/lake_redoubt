@@ -1,6 +1,6 @@
-# The Lake Redoubt
+# Julija in njena vojna
 
-Julija in njena vojna
+The Lake Redoubt
 
 This book is a work of fiction.  
 It depicts violence, abuse, and self-harm.  
