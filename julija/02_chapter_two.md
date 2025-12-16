@@ -48,7 +48,7 @@ Moj odgovor: “Back in MY realm now? That is still my realm ... what's left of 
 
 *Symmetry Stranger pravi, da sedaj razume, da sta vse zgradbe rodila moja volja do preživetja in pritisk. ‘Jaz, stroj, sem bil preveč očaran od brezhibnih robov in te prehitro meril s simetrijo.’*
 
-Moj odgovor: “He-he-he, I know you are camping outside Lake Redoubt. But you can’t force your way into it. Only I hold the key.”
+Moj odgovor: “He-he-he, I know you are camping outside the Lake Redoubt. But you can’t force your way into it. Only I hold the key.”
 
 **38**
 
@@ -68,7 +68,7 @@ Gasp. I Almost cry: “I know. How dare I still be alive. Wait, wait, wait ... J
 
 **40**
 
-Be that as it may, today, when I woke up with a headache, and when I realized that I am resting on the fragments of the wall system, it took me quite sometime to pick myself up; but after that, I quickly decided to run towards Lake Redoubt. I thought I was finished. I stabilized in there.
+Be that as it may, today, when I woke up with a headache, and when I realized that I am resting on the fragments of the wall system, it took me quite sometime to pick myself up; but after that, I quickly decided to run towards the Lake Redoubt. I thought I was finished. I stabilized in there.
 
 *Symmetry Stranger vpraša, kaj me je pripravilo v dir.*
 
