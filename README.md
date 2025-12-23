@@ -55,4 +55,4 @@ It is not addressed to a potential reader.
 - [Poglavje III — Žuboreča druga polovica](krepost/03_druga_polovica.md)
 - [Poglavje IV — Projektorja sovražne, zgoščene, lepljive črnine](krepost/04_projektorja.md)
 - [Poglavje V — Vrhunec](krepost/05_vrhunec.md)
-- [Poglavje VI — ...](krepost/06_-.md)
+- [Poglavje VI — Zaključek](krepost/06_-.md)
