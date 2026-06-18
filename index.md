@@ -5,6 +5,7 @@ title: the_lake_redoubt
 # Julija and her war 
 **Julija in njena vojna**
 
+PDF: https://archive.org/details/julija-and-her-war
 
 This book is a work of fiction.  
 It depicts violence, abuse, and self-harm.  
@@ -51,6 +52,8 @@ All characters, including the narrator, are fictional and do not represent the a
 
 # The Lake Redoubt 
 **Krepost**
+
+PDF: https://archive.org/details/krepost_202603/mode/2up
 
 ---
 
