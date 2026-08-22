@@ -21,6 +21,8 @@
 <body>
   {{ content }}
   <hr>
-  <p><a href="/the_lake_redoubt/">← Back to main page</a></p>
+  {% unless page.url == "/the_lake_redoubt/" %}
+    <p><a href="/the_lake_redoubt/">← Back to main page</a></p>
+  {% endunless %}
 </body>
 </html>
