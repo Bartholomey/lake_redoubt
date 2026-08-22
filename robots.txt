@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://bartholomey.github.io/the_lake_redoubt/sitemap.xml
