@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/18_chapter_eighteen.html
+next: /the_lake_redoubt/julija/20_chapter_twenty.html
+---
 # The blackness from the past
 **Ničevost iz preteklosti**
 
