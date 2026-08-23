@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/the_resignation_part_two.html
+next: /the_lake_redoubt/julija/the_horror_story.html
+---
 # How it is supposed to end
 
 <br>
