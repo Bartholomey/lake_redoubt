@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/00_prologue.html
+next: /the_lake_redoubt/julija/02_chapter_two.html
+---
 # Julija?
 
 <br>
