@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/10_chapter_ten.html
+next: /the_lake_redoubt/julija/12_chapter_twelve.html
+---
 # Another counter-attack
 **Ponovni napad**
 
