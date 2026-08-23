@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/21_chapter_twenty-one.html
+next: /the_lake_redoubt/julija/23_chapter_twenty-three.html
+---
 # The next day
 **Naslednji dan**
 
