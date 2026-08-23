@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/17_chapter_seventeen.html
+next: /the_lake_redoubt/julija/19_chapter_nineteen.html
+---
 # Behold, the vastness of the Flatlands!
 **Glej, neizmernost Dežele Ravnin!**
 
