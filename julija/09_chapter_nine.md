@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/08_chapter_eight.html
+next: /the_lake_redoubt/julija/10_chapter_ten.html
+---
 # A counter-attack
 **Protinapad**
 
