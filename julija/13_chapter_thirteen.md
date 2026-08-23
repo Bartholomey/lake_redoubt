@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/12_chapter_twelve.html
+next: /the_lake_redoubt/julija/14_chapter_fourteen.html
+---
 # Changes
 **Premiki**
 
