@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/04_chapter_four.html
+next: /the_lake_redoubt/julija/06_chapter_six.html
+---
 # A mistake
 **Napaka**
 
