@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/16_chapter_sixteen.html
+next: /the_lake_redoubt/julija/18_chapter_eighteen.html
+---
 # The militarization of the Flatlands
 **Militarizacija Dežele Ravnin**
 
