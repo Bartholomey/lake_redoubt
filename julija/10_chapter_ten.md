@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/09_chapter_nine.html
+next: /the_lake_redoubt/julija/11_chapter_eleven.html
+---
 # When will I die?
 **Kdaj mi bo odbila zadnja ura?**
 
