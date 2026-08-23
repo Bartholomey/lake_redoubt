@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/20_chapter_twenty.html
+next: /the_lake_redoubt/julija/22_chapter_twenty-two.html
+---
 # The urgent session in the Lake Redoubt
 **Izredna seja v Jezerni utrdbi**
 
