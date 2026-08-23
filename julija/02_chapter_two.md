@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/01_chapter_one.html
+next: /the_lake_redoubt/julija/03_chapter_three.html
+---
 # The siege
 **Obleganje**
 
