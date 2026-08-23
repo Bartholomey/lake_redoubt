@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/24_chapter_twenty-four.html
+next: /the_lake_redoubt/julija/epilogue.html
+---
 # The bloodlust fragments
 **Fragmenti krvoločnosti**
 
