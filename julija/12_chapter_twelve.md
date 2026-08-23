@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/11_chapter_eleven.html
+next: /the_lake_redoubt/julija/13_chapter_thirteen.html
+---
 # Let me show you my Julija
 **To je moja Julija**
 
