@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/23_chapter_twenty-three.html
+next: /the_lake_redoubt/julija/25_chapter_twenty-five.html
+---
 # The execution symmetry
 **Usmrtitvena simetrija**
 
