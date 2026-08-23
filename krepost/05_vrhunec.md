@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/krepost/04_projektorja.html
+next: /the_lake_redoubt/krepost/06_-.html
+---
 # Vrhunec
 
 <br>
