@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/02_chapter_two.html
+next: /the_lake_redoubt/julija/04_chapter_four.html
+---
 # The river
 **Reka**
 
