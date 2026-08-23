@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/how_it_is_supposed_to_end.html
+next: /the_lake_redoubt/julija/the_next_chapter.html
+---
 # The horror story of the five days in July
 **Julija’s horror story**
 
