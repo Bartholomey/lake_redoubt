@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/06_chapter_six.html
+next: /the_lake_redoubt/julija/08_chapter_eight.html
+---
 # The core
 **Jedro**
 
