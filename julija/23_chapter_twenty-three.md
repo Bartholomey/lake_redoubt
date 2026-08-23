@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/22_chapter_twenty-two.html
+next: /the_lake_redoubt/julija/24_chapter_twenty-four.html
+---
 # The pain of tenderness
 **Bolečina nežnosti**
 
