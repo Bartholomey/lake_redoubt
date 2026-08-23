@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/03_chapter_three.html
+next: /the_lake_redoubt/julija/05_chapter_five.html
+---
 # The Red Fortress
 **Rdeča trdnjava**
 
