@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/25_chapter_twenty-five.html
+next: /the_lake_redoubt/julija/the_resignation_part_one.html
+---
 # The summer dream
 **Poletne sanje**
 
