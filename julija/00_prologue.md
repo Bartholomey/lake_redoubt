@@ -1,3 +1,6 @@
+---
+next: /the_lake_redoubt/julija/01_chapter_one.html
+---
 # How it began
 **Kako se je začelo**
 
