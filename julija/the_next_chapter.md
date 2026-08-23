@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/the_horror_story.html
+next: /the_lake_redoubt/krepost/01_uvod.html
+---
 # The next chapter: To fly away
 
 <br>
