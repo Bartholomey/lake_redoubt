@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/05_chapter_five.html
+next: /the_lake_redoubt/julija/07_chapter_seven.html
+---
 # The dream dance
 **Sanjski ples**
 
