@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/the_next_chapter.html
+next: /the_lake_redoubt/krepost/02_kaj_je_plemstvo.html
+---
 # Krepost
 
 <br>
