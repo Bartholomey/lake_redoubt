@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/krepost/02_kaj_je_plemstvo.html
+next: /the_lake_redoubt/krepost/04_projektorja.html
+---
 # Žuboreča druga polovica
 
 <br>
