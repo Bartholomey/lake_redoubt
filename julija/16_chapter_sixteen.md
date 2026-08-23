@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/15_chapter_fifteen.html
+next: /the_lake_redoubt/julija/17_chapter_seventeen.html
+---
 # The contract
 **Pogodba**
 
