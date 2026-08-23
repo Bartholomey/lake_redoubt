@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/19_chapter_nineteen.html
+next: /the_lake_redoubt/julija/21_chapter_twenty-one.html
+---
 # In front of the cemetery wall
 **Pred pokopališčno ograjo**
 
