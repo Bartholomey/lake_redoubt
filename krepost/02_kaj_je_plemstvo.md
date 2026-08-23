@@ -1,4 +1,7 @@
-
+---
+prev: /the_lake_redoubt/krepost/01_uvod.html
+next: /the_lake_redoubt/krepost/03_druga_polovica.html
+---
 # Kaj je plemstvo in na kakšnih temeljih mu gre graditi trdnjavo
 
 <br>
