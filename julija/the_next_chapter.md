@@ -6,9 +6,9 @@ next: /the_lake_redoubt/krepost/01_uvod.html
 
 <br>
 
-**234**
+**235**
 
-Julija interjects, telling everyone about my escape plan: “She tried to reactivate Flaps by mimicking my voice. She would say, ‘Flaps, snap out of it. Can you hear me, little friend?’ And because he would remain unresponsive, she would try to restart him by imitating me, his superior: ‘... Ahem! ... Hallo?’ One, two, three – his whole body would twitch, and he would look her in the eyes. This is how it would go; observe:” 
+  Julija interjects, telling everyone about my escape plan: “She tried to reactivate Flaps by mimicking my voice. She would say, ‘Flaps, snap out of it. Can you hear me, little friend?’ And because he would remain unresponsive, she would try to restart him by imitating me, his superior: ‘... Ahem! ... Hallo?’ One, two, three – his whole body would twitch, and he would look her in the eyes. This is how it would go; observe:” 
 
 The Buried One: “Everything is frozen, so we can walk across the lake. Let me show you how I got here in the first place. What do we do now? I might have a pla–”
 
@@ -20,7 +20,7 @@ A voice: “She wrote a very weird, forgotten book in two thousand thirteen. It 
 
 Julija: “It doesn’t matter. We are not there. You did not fly away. Flaps is motionless, you are powerless. All you can do is tell sad stories, so go ahead.”
 
-**235**
+**236**
 
   There was no warmth in those words and gestures. 
 
@@ -30,17 +30,17 @@ Julija: “It doesn’t matter. We are not there. You did not fly away. Flaps is
 ... Walking back alone to [deleted]. “Flaps, entertain me.” 
 
 
-  *blissful melancholy*
+*blissful melancholy*
   
 Naïve and [deleted]; now, an old, tired [deleted] who follows a [deleted].
 
 You are something big, and sturdy, and unchangeable. A place that holds those [deleted] that sound like liturgy. It’s a [deleted] structure, so severity, violence are expected. 
 
 
-# Wake up
+### Wake up
 
 
-**236**
+**237**
 
 A voice: “You have decided to stop thinking about your – – – 
 You are tired of longing. You want to leave that wish behind and go with the – – – 
@@ -51,15 +51,15 @@ Months and months have passed; you are [deleted]. You must leave that [deleted] 
 You are pressing against my frail, powerless body from all sides –––––
 I let the feeling dissipate. As I follow my routine, such feelings get re-routed by the system, and they flow in the designated place like drainage. It was [deleted], yet the memory is now pleasing me.
 
-**237**
+**238**
 
-Another spring. — I perform the usual ritual. Julija comes to the country-side house, but she is just standing there unresponsive with her head down as though she is sleeping.
+*Another spring. —* I perform the usual ritual. Julija comes to the country-side house, but she is just standing there unresponsive with her head down as though she is sleeping.
 
 “Wake up, Julija, wake up!”
 
 Several hours later, she senses my frustration and silently forces the body to violate my [deleted]. She then opens her eyes and tries to kill me.
 
-A voice: “You can’t even describe it. She was there, possessing you. Destroying your –”
+A voice: “You cannot even describe it. She was there, possessing you. Destroying your –”
 
 The Buried One: “I did not want my –
 Julija, what have you done with my ––” 
@@ -75,7 +75,7 @@ Julija: “What’s wrong with you? He-he, you really disliked it when the Keepe
 
 The words are being swallowed by the stillness.
 
-**238**
+**239**
 
 Julija: “Did you, now? Now go. Thank you. Thank you, darling. Oh you are so kind and sweet, so pretty and somber. Yes ... those [deleted] [deleted] will touch your corpse. He-he-he-he-he.”
 
@@ -116,7 +116,7 @@ Julija: “That [deleted] won’t help you. You are still gross. It won’t make
 
 Julija: “Let me follow you. You can’t undo the fact that you are disgusting; you know that, right? So go ahead, you walking abomination: walk. Walk. Where will you go? You were walking so long – in the snow, in the rain – and where did you arrive? To your bitter end. Zora, Zarja, [deleted], let me [delete] you, HAHAHHAHAHHAHAHHAHAH.............”
 
-**239**
+**240**
 
 Julija: “Tell [deleted] how things were different in 2009 in regard to you and me. How I did not hold such power over you, and you did not –––
 [...] how I began to crawl out of you at the end of 2012. You can’t push me back inside. I don’t believe you are sane anymore. You know I know what’s best for you. But I am also furious. I made you throw the [deleted] against the ground at the end of 2012 when you were still abroad. I started to come out during that moment.”
@@ -139,7 +139,7 @@ No ... I will stand up now and move to –”
 
 Julija: “Fine. Move. Let’s see if anything changes. Your [deleted] won’t change, you GROSS, PERVERTED WHORE!!! YOU ARE A WHORE IN SPIRIT! YOU ARE A WHOOOOOOOOOOOOOOOOOOOOOOOREEEEEEEEEEEEE!!!!!!!!!”
 
-**240**
+**241**
 
 Julija: “You simply need to –
 [...] yourself. To end the suffering. You know I know your suffering. I know you know it’s unbeareable. The suffering just won’t stop.” *Laughs.*
@@ -196,9 +196,9 @@ Julija: “Do you know why your [deleted] knows nothing about you? It’s becaus
 
 The Buried One: “That was painful ...”
 
-**241**
+**242**
 
-[deleted] still here. It’s raining. Julija is still here ...
+  [deleted] still here. It’s raining. Julija is still here ...
 
 A voice: “Anyone who would [deleted] would feel unhuman coldness emanating from your hands.”
 
@@ -208,9 +208,9 @@ The Buried One: “When we [deleted] in [deleted], I had no premonition that she
 
 A voice: “[...] participate in the majesty of the [deleted] you have been experiencing intermittently  your whole life. Pushed them out and exposed them. But enough about [deleted] and your feelings. I want you to stop [deleted] about – – –”
 
-**242**
+**243**
 
-*September, 2014*
+  *September, 2014*
 
 I wake up – I, A. I sit on the edge of my bed. Calmly, I look into the eyes of my twin sister. She is the good sister; she turns my eyes away from the sky, forcing me to observe the beauty, which I think is false, of this world, of this life. The sister will never have complete ascendancy over me. – You can sense sister’s presence in the [deleted] I create, [deleted] I [deleted]; her voice is quite powerful, her might – unfathomable. 
 
@@ -219,10 +219,10 @@ She emerges, then quickly vanishes. But she vanishes – vanishes as quickly as 
 I like our home. It’s a safe place; it’s the only safe place in this world. My (our) home is truly the safest place in this world. 
 
 
-# Julija, annoyed and spiteful
+### Julija, annoyed and spiteful
 
 
-**243**
+**244**
 
 *Another summer. —* The Buried One: “I was destined to live in a [deleted] surrounded by water; instead, I’m hiding like a witch! Nooo–”
 
@@ -249,6 +249,7 @@ The Buried One: “I want to stand near the forest edge and touch that edge, but
 Julija: “[deleted]! SHUT UP!!!!!!!!! [deleted] YOU ARE ... [deleted]!!! SHUT UP!!!!!!!!!!!!!”
 
 The Buried One: “The forest cannot take me. The [deleted] can. No, I can’t decay like a building: I am a [deleted] composition of flesh. I am trash. I will die and decay instantly. My spirit carried me away: I’m inside that [deleted], and not near the forest.” Whimpers in spirit.
+
 Julija: “Come here. I will take you away.”
 
 A Voice: “There’s a [deleted] standing behind her back. Annoyed and spiteful.”
@@ -272,18 +273,18 @@ Julija: “Kill her. Someone. Kill her.”
 Julija: “She won’t do it. Another [deleted] [deleted] summer.”
 
 
-# A tournament is being held for the Buried One’s sake – as a get-well gesture
+### A tournament is being held for the Buried One’s sake – as a get-well gesture
 
 
-**244**
+**245**
 
-A disappointed face in agony: “A turn-a what? Why?” *Holding back tears.*
+  A disappointed face in agony: “A turn-a what? Why?” *Holding back tears.*
 
 The golems, Flaps, nay, the moat castle itself is crying in pain through their frozen eyes and gates: “Julija, destroy the Buried One, lest she destroy us all.”
 
 The scene is taking place in a foreign land. It’s progressing and progressing, as those events usually progress without kingly interferences; it comes to a halt, however, when Julija’s victory and face-reveal ruin her first opponent’s mascara through his tears. 
 
-The trumpets bring into the foreground another announcer, and the event is teleported behind the walls of our old beloved place: “Sæd Lohler here. Master of the h-h-h-h-harquebusiers.” He rises his right arm with closed fist above his his head so that his sadness-projecting eyes and his aforementioned extremity indicate a ninety-degree angle. “Congratulations to the winner of this round, Julija the Annoyed, the [deleted] of the Flatlands!” *Silence.*
+The trumpets bring into the foreground another announcer, and the event is teleported behind the walls of our old beloved place: “Sæd Lohler here. The Master of H-h-h-h-harquebusiers.” He rises his right arm with closed fist above his his head so that his sadness-projecting eyes and his aforementioned extremity indicate a ninety-degree angle. “Congratulations to the winner of this round, Julija the Annoyed, the [deleted] of the Flatlands!” *Silence.*
 
 The loser: “Where am I? Is this hell?” The sound of the Lord’s prayer is in the still air.
 
@@ -299,4 +300,4 @@ Announcer: “The answer is ... n– – – negatory!! Meaning we are most like
 
 The charging bull’s left hand wipes away the sweat from his forehead, making his already messed up mascara even messier. Another utterly womanly, high-pitched sound leaves his almost closed glossy lips. The thin, puncturing, and painfully crooked blade is in his stronger hand.
 
-The Buried One closes her eyes; her hands raised to her mouth: “
+The Buried One closes her eyes; her hands raised to her mouth:
