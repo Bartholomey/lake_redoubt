@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/krepost/03_druga_polovica.html
+next: /the_lake_redoubt/krepost/05_vrhunec.html
+---
 # Projektorja sovražne, zgoščene, lepljive črnine
 
 <br>
