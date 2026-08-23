@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/the_resignation_part_one.html
+next: /the_lake_redoubt/julija/how_it_is_supposed_to_end.html
+---
 # The resignation, part two
 
 <br>
