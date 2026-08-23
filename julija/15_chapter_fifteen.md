@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/14_chapter_fourteen.html
+next: /the_lake_redoubt/julija/16_chapter_sixteen.html
+---
 # At long last – Julija!
 **Končno – Julija!**
 
