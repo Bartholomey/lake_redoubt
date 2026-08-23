@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/13_chapter_thirteen.html
+next: /the_lake_redoubt/julija/15_chapter_fifteen.html
+---
 # Remember
 **Spomni se**
 
