@@ -1,3 +1,7 @@
+---
+prev: /the_lake_redoubt/julija/07_chapter_seven.html
+next: /the_lake_redoubt/julija/09_chapter_nine.html
+---
 # The void angel
 **Angel praznine**
 
