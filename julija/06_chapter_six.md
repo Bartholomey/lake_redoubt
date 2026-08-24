@@ -27,9 +27,11 @@ We are not in the river right now; we are near the burnt meadow: “Anyway, yest
 
 It was dark, so I could not see it that good, but I’m very sure it had a symbol, and that symbol was something like ... one down-right-left-up-pointing square with one down-right-left-up-pointing square on each side! They were all tilted identically – forty-five degrees.”
 
-         ◇
-      ◇ ◇ ◇
-         ◇
+<div style="text-align: center; line-height: 1.4;">
+◇<br>
+◇ ◇ ◇<br>
+◇
+</div>
          
 *Geometry instead of a face. — Symmetry Stranger: “Something abnormal is either being kept in or kept out.”*
 
