@@ -68,7 +68,7 @@ A voice: “Push me into blackness.”
 
 Julija: “Go. End the [deleted]. Let us leave.”
 
-Julija: “The song is looping. Your last thought will be the –
+Julija: “The song is looping. Your last thought will be the –<br>
 [...] of our – – –”
 
 Julija: “What’s wrong with you? He-he, you really disliked it when the Keeper’s hand messed up your – – –”
@@ -99,7 +99,7 @@ Julija: “[deleted] [deleted] hates you. You are disgusting.”
 
 Julija: “You will die, and [deleted] won’t [deleted].”
 
-Julija: “Even this voice knows more about [deleted] than –
+Julija: “Even this voice knows more about [deleted] than –<br>
 Heh. You are gross. You are pathetic. You are ... disgusting!!!!!”
 
 Julija: “Your [deleted] knows nothing about you. [deleted], Zora, Zarja! Kill yourself!!!”
@@ -118,16 +118,16 @@ Julija: “Let me follow you. You can’t undo the fact that you are disgusting;
 
 **240**
 
-Julija: “Tell [deleted] how things were different in 2009 in regard to you and me. How I did not hold such power over you, and you did not –––
+Julija: “Tell [deleted] how things were different in 2009 in regard to you and me. How I did not hold such power over you, and you did not –––<br>
 [...] how I began to crawl out of you at the end of 2012. You can’t push me back inside. I don’t believe you are sane anymore. You know I know what’s best for you. But I am also furious. I made you throw the [deleted] against the ground at the end of 2012 when you were still abroad. I started to come out during that moment.”
 
 The Buried One: “She slowly crawled [deleted] ———”
 
-And before I went back to [deleted] in February, she was already –
+And before I went back to [deleted] in February, she was already –<br>
 Julija had to crawl [deleted] – 
 
-Sick of the never-ending day-dreaming about being – – –
-[...] and the general enmity. I think I suffered a [deleted] then, at the end of [deleted].  I destroyed my –––
+Sick of the never-ending day-dreaming about being – – –<br>
+[...] and the general enmity. I think I suffered a [deleted] then, at the end of [deleted].  I destroyed my –––<br>
 I could not –
 
 I’ve been day-[deleted] my whole life. [...] still sane.”
@@ -141,21 +141,21 @@ Julija: “Fine. Move. Let’s see if anything changes. Your [deleted] won’t c
 
 **241**
 
-Julija: “You simply need to –
+Julija: “You simply need to –<br>
 [...] yourself. To end the suffering. You know I know your suffering. I know you know it’s unbeareable. The suffering just won’t stop.” *Laughs.*
 
 Julija: “You were born in spring, yet you are an abomination.”
 
 A voice: “But why?”
 
-Julija: “Why would anyone help an [deleted] abomination? They will –
+Julija: “Why would anyone help an [deleted] abomination? They will –<br>
 [...] and insert you into the fire.”
 
 Julija: “Your [deleted] is not here. Look at you, you’re crying, silly old [deleted]. Let me squeeze more tears out of you before YOU DIE, YOU WHORE!”
 
 Julija: “Why are you drinking water? No one, including [deleted], wants you to drink water.”
 
-Julija: “You won’t be here for long, so tell –
+Julija: “You won’t be here for long, so tell –<br>
 [...] and then I’ll take over. No matter how much water you use, you cannot wash away the fact that you are disgusting and that you are –––”
 
 Julija: “Your death throes.”
@@ -172,15 +172,15 @@ Julija: “You are damaged; you cannot experience [deleted] any longer. You are 
 
 Julija: “C’mere, sweetie. Aww, you [deleted] your [deleted]. Come here. Come here. Before I make ––––”
 
-Julija: “Uhm, no, Trash. Don’t –
-They would come asking what’s –
+Julija: “Uhm, no, Trash. Don’t –<br>
+They would come asking what’s –<br>
 [...] and they would get furious: ‘You are [deleted] our [deleted]. We don’t [deleted] to under-developed [deleted].’ Hahahahahaaa!!!”
 
 Julija: “You won’t [deleted]. Shut up!”
 
 Julija: “You think you can choose [deleted] over me?”
 
-Julija: “If you –––
+Julija: “If you –––<br>
 [...] they will –——– [...] saying you are a –––––––”
 
 A voice: “You have no words.”
@@ -189,7 +189,7 @@ Julija: “Your name is Trash. Not [deleted].”
 
 Julija: “Yes, you are still at the keyboard. Typing with your [deleted] like the under-developed monstrosity that you are.”
 
-Julija: “You will step [deleted] and float. Hahhahahahahahahahhah!!!!!!!!!
+Julija: “You will step [deleted] and float. Hahhahahahahahahahhah!!!!!!!!!<br>
 This [deleted] is dying ... [deleted] death is coming. Is dying ... Is dying ... Is dying ... Dying ... Dying.”
 
 Julija: “Do you know why your [deleted] knows nothing about you? It’s because no one wants to rummage through trash.”
