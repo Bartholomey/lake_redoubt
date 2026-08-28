@@ -42,13 +42,13 @@ You are something big, and sturdy, and unchangeable. A place that holds those [d
 
 **237**
 
-A voice: “You have decided to stop thinking about your – – – 
-You are tired of longing. You want to leave that wish behind and go with the – – – 
+A voice: “You have decided to stop thinking about your – – –<br> 
+You are tired of longing. You want to leave that wish behind and go with the – – –<br> 
 You have given up. You were hoping  – – –
 
 Months and months have passed; you are [deleted]. You must leave that [deleted] behind.”
 
-You are pressing against my frail, powerless body from all sides –––––
+You are pressing against my frail, powerless body from all sides –––––<br>
 I let the feeling dissipate. As I follow my routine, such feelings get re-routed by the system, and they flow in the designated place like drainage. It was [deleted], yet the memory is now pleasing me.
 
 **238**
@@ -61,7 +61,7 @@ Several hours later, she senses my frustration and silently forces the body to v
 
 A voice: “You cannot even describe it. She was there, possessing you. Destroying your –”
 
-The Buried One: “I did not want my –
+The Buried One: “I did not want my –<br>
 Julija, what have you done with my ––” 
 
 A voice: “Push me into blackness.”
