@@ -134,7 +134,7 @@ I’ve been day-[deleted] my whole life. [...] still sane.”
 
 Julija: “You are not sane anymore, you hysterical child.” 
 
-The Buried One: “Julija had no name then. It was just ‘sister’. She has become so powerful that I am adoring her – – –
+The Buried One: “Julija had no name then. It was just ‘sister’. She has become so powerful that I am adoring her – – –<br>
 No ... I will stand up now and move to –”
 
 Julija: “Fine. Move. Let’s see if anything changes. Your [deleted] won’t change, you GROSS, PERVERTED WHORE!!! YOU ARE A WHORE IN SPIRIT! YOU ARE A WHOOOOOOOOOOOOOOOOOOOOOOOREEEEEEEEEEEEE!!!!!!!!!”
